@@ -2,7 +2,7 @@ Hola , mi nombre es Hanna Pastor. Soy estudiante de 2°año de Ingeniería en Si
 
 Legajo:12343
 
-Datos Interesante:
+Datos Interesantes:
  
  Soy de Zárate
  
